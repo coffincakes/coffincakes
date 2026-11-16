@@ -11,6 +11,9 @@ I have a basic DNI, and I block/hide freely. Feel free to follow me on here! Als
 **The stickers/blinkies/graphics/etc. that I have on here may be bright or have flashing lights! If you're sensitive to that please be careful when scrolling down!**
 
 
+**My DNI list:** You're under 16, Vivziepop/Helluva/Hazbin fans, TCOAAL, APH, TADC, Proshippers/Darkshippers/etc.
+
+
 
 
 
